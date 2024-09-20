@@ -1,3 +1,3 @@
 # Starting
 
-Lets go bruh!
+Lets go
